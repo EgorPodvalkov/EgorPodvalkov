@@ -1,5 +1,5 @@
 ### Hi there 👋
-#### My name is Egor 👉👈
+#### My name is Egor 🙂
 ### OwO 🦉
 
 <!--
